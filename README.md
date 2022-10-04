@@ -1,1 +1,0 @@
-# konkukuniv-stat.github.io
